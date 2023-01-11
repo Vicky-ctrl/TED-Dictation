@@ -13,4 +13,14 @@ For nearly decade I own the another restaurant called eleven Madison park, to gi
 
 >网站译文：在这将近十年里， 我拥有并运营着一家 名为“麦迪逊公园十一号” （Eleven Madison Park）的餐厅。 如果你不知道这家餐厅， 我可以给你介绍一些背景信息， 麦迪逊公园十一号 是一家奢华餐厅， [坐落于纽约 24 街 与麦迪逊大道的交叉路口]()。 非常非常奢华。 服务员穿着西装、打着领带， 熨烫平整的洁白桌布。 超过 30 名厨师在厨房里忙于制作 10 道菜、15 道菜的品尝菜单。 我觉得你已经懂了。 2006 年，我来到这家餐厅时， 它就是个中档小餐馆。 但是 2020 年初 我出售这家餐厅时， 它已经名列世界餐厅之首。
 
-#### Day2
+#### Day2 01:25
+Now, to be clear, our kitchen served unbelievably delicious,and increblely food are service, was so gricious ,and close to techenicly perfect that's possible. And her dinning room, I mean it's google picture. There was almost beautiful along there. And this was because those reasons that we can concernly on the list about fifty best restaurants in the world, but it was hot-dogs, that owned the number one better than others. Or rather, the rainning stratigy but give the birth to, unreasonable, has pertinity. The pricess ble? get us as we talk ordinary transactions until they're drodinary experices.
+
+>原文：Now, to be clear, our kitchen served unbelievably delicious and [incredibly]() [innovative]() food. Our service was so [gracious]() and as close to [technically]() perfect as possible. And our [dining]() room ... I mean, just Google a picture. It's one of the most beautiful [out there](). And it was because of those reasons that we were [consistently]() on the list of the 50 best restaurants in the world. But it was a hot dog that earned us the number one spot on that list. Or rather, the winning strategy that it gave birth to: unreasonable [hospitality](). The [principle]() that guided us as we took ordinary transactions and turned them into extraordinary experiences.
+
+>对照查词后译文：现在要明确一点，我们厨房提供令人难以置信的美味和及其创新的菜品。我们的服务是亲切并且尽可能趋于完美的。还有我们的餐厅，去百度一张图片你就知道了。它是这里最美丽的餐厅之一。这些都是我们始终排在全世界前五十名餐厅里面的理由。但是，是热狗帮我们赢得了第一名的殊荣。或者更确切地说，热情好客是我们获胜的策略。这个原则为我们带来了正常的生意，并且将它们转化为非凡的经历。
+
+>网站译文：我想澄清一点， 我们的厨房出品珍馐美馔， 也极具创新性。 我们的服务会让你感到宾至如归， 无懈可击。 我们的餐厅…… 上网搜张图片看看吧。 绝对是最漂亮的餐厅之一。 以上的原因让我们持续位列 世界最佳 50 家餐厅之中。 一个热狗让我们夺得桂冠。 或者说，是它带来的决胜策略： 不遗余力的好客之道。 它指引着我们 将一单单普通的交易 转变成一次次令人难忘的体验。
+
+
+
