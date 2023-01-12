@@ -24,7 +24,7 @@ Now, to be clear, our kitchen served unbelievably delicious,and increblely food 
 
 >网站译文：我想澄清一点， 我们的厨房出品珍馐美馔， 也极具创新性。 我们的服务会让你感到宾至如归， 无懈可击。 我们的餐厅…… 上网搜张图片看看吧。 绝对是最漂亮的餐厅之一。 以上的原因让我们持续位列 世界最佳 50 家餐厅之中。 一个热狗让我们夺得桂冠。 或者说，是它带来的决胜策略： 不遗余力的好客之道。 它指引着我们 将一单单普通的交易 转变成一次次令人难忘的体验。
 
-#### Day2 02:08
+#### Day3 02:08
  New, to be clear, our kitchen served unbelievably delicious and incrediblely food are service, was so gricious, and close to techenicly perfect, that's posible. And our dining room, I mean, just google a pictrue. It is almost beautiful out there. And that is because of those reasons that we were consistently on the list of 50 best restaurants in the world. But it was a hot dog that earned the number one spot on the list. Or rather, the winning strategy that it gave birth to: unreasonable hospitality. The principle that guid us as we took ordinary transactions and turn them into extraordinary experiences.
 In early 2010, I'm busy as nomal laming? service, I was in the dining room, helping as the servers, find my self cleaning aptasons from table for full foodies on vacation to New York. And we're going to airport to had that kong after the meal, I was heard they were talking, what a amizing trip, we had been all the best restautrant. I was listening too much.??? Now, elevent madison park, that another person shapen, yeah, the only thing we got to try with the New York City is hot dog. In that moment, in the cartoon, with the animals off, ??? our caricters said think to find that they are coming a really good idea. 
 
