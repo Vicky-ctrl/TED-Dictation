@@ -43,7 +43,14 @@ In early 2010, on a busier-than-nomal lunch service, I was in the dining room he
 If you been in the room with me that day, you will see I was pppp my mind. As calmlly as I possiblely could I watch greafully back in the kitchen, tro
 ped off the place and liderly run up the front door on the download the hotdog card. About the hotdog, I was run just fast back the kitchen. Now can you heard hard part. Can that shut the serve in a fancy fun dining room restaurant? Guys were looking up me at losing my mind, serving like New York called a dirty water dog in a fauncy restaurant. But I asked them to trust me, then I told them that it was important to me. Advertraly, they agreed to cut up th e hotdog into four perfect pieces, and switch cccc, and switch masters on teach play, and finished in ccc salad croud,???? Then, the four that we served on the table the final ta??? "happen to be a honey levender ????????,years to perfect. We brought the hotdog,." I introduce to them, "To make sure that you don't go home with any ??? regrets , a New York hotdog."
 
->原文：
+>原文：If you’d been in the room with me that day, you would have seen one appear over mine. As calmly as I possibly could, I walked [gracefully]() back into the kitchen, dropped off the plates, and then [literally]() ran out the front door and down the block to the hotdog cart. I bought a hotdog and ran just as fast back into the kitchen. Now came the hard part: [convincing]() the chef to serve it in our fancy fine dining restaurant. Guys, he looked at me like I'd lost my mind. Serving what New Yorkers call "a dirty water dog" in a fancy four-star restaurant? But I asked him to trust me and I told him it was important to me. And eventually he agreed to cut the hotdog up into four perfect pieces, adding a little swish of ketchup and a swish of mustard onto each plate and finishing them with a [quenelle of sauerkraut]() and [a quenelle of relish]().
+Then, before we served at the table their final [savory]() course -- which happened to be a [honey-lavender]() [glazed]() Muscovy duck that had been dry aged for two weeks, [utilizing]() a technique that had taken years to perfect -- we brought them their hot dog. I introduced it. "To make sure you don't go home with any culinary regrets, a New York City hotdog."
+
+对照查词后翻译：如果那天你们和我在同一房间，你们一定会见到我一面。我尽可能地冷静，我优雅的返回厨房，放下盘子，然后快速跑出前门，跑到热狗车的那条街。我以最快的速度带了一个热狗回到厨房。现在到了最难的部分：说服主厨在我们这个绝美的餐厅提供热狗。朋友们，他看着我的眼神就好像我疯了。在一个四星餐厅提供被纽约人称为“肮脏的水狗”的东西？但是我让他相信我，我告诉他这对我很重要。最后他同一把这个热狗切成完美的四份，在每个盘子上添加一点番茄酱和一点芥末酱，最后以酸菜肉汁和调味肉汁制作完成。
+然后，在我们给他们上了这道热狗？？？？，我介绍道：“为了确保你们不把美食方面的遗憾带回家，这就是那道纽约热狗。”
+
+>网站译文： 如果那天你和我一起在餐厅里， 你就会看到 我头顶就有这么一个灯泡。 我极力保持淡定， 优雅地走回厨房，放下盘子， 飞奔出前门， 冲向下个路口的热狗餐车。 我买了个热狗，又飞奔回厨房。 难题来了： 说服大厨在我们 这奢华高档的餐厅供应热狗。 他像看着疯子一样看着我。 在一家四星高档餐厅 供应纽约人口中的“脏水热狗”？ 但是我让他相信我， 我告诉他， 这对我来说非常重要。 最终，他答应把热狗 切成方方正正的四块， 每盘加一抹番茄酱， 加一抹芥末酱， 再加上一小簇酸菜和酸黄瓜酱。
+在我们端上最后一道主菜之前， 即干式熟成两周番鸭 佐蜂蜜薰衣草酱， 而干式熟成需要多年精进， 我们端上了热狗。 我介绍了一下。 ”为了让你们不要带着 没吃成某些美食的悔恨踏上归途， 来尝尝纽约热狗吧。”
 
 
 
