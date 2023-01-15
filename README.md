@@ -25,7 +25,7 @@ Now, to be clear, our kitchen served unbelievably delicious,and increblely food 
 >网站译文：我想澄清一点， 我们的厨房出品珍馐美馔， 也极具创新性。 我们的服务会让你感到宾至如归， 无懈可击。 我们的餐厅…… 上网搜张图片看看吧。 绝对是最漂亮的餐厅之一。 以上的原因让我们持续位列 世界最佳 50 家餐厅之中。 一个热狗让我们夺得桂冠。 或者说，是它带来的决胜策略： 不遗余力的好客之道。 它指引着我们 将一单单普通的交易 转变成一次次令人难忘的体验。
 
 #### Day3 02:08
- New, to be clear, our kitchen served unbelievably delicious and incrediblely food are service, was so gricious, and close to techenicly perfect, that's posible. And our dining room, I mean, just google a pictrue. It is almost beautiful out there. And that is because of those reasons that we were consistently on the list of 50 best restaurants in the world. But it was a hot dog that earned the number one spot on the list. Or rather, the winning strategy that it gave birth to: unreasonable hospitality. The principle that guid us as we took ordinary transactions and turn them into extraordinary experiences.
+ New, to be clear, our kitchen served unbelievably delicious and incrediblely food are service, was so gricious, and close to techenicly perfect, that's posible. And our dining room, I mean, just google a pictrue. It is almost beautiful out there. And that is because of those reasons that we were consistently on the list of 50 best restaurants in the world. But it was a hot dog that earned the number one spot on the list. Or rather, the winning strategy that it gave irth to: unreasonable hospitality. The principle that guid us as we took ordinary transactions and turn them into extraordinary experiences.
 In early 2010, I'm busy as nomal laming? service, I was in the dining room, helping as the servers, find my self cleaning aptasons from table for full foodies on vacation to New York. And we're going to airport to had that kong after the meal, I was heard they were talking, what a amizing trip, we had been all the best restautrant. I was listening too much.??? Now, elevent madison park, that another person shapen, yeah, the only thing we got to try with the New York City is hot dog. In that moment, in the cartoon, with the animals off, ??? our caricters said think to find that they are coming a really good idea. 
 
 >原文：In early 2010, on a [busier-than-normal]() lunch service, I was in the dining room helping out the servers when I found myself clearing [appetizers]() from a table of four [foodies]() on vacation to New York. And they were going to the airport to [head back]() home after their meal. I [overheard]() them talking. "What an amazing trip. We've been to all the best restaurants." And they listed a [bunch](): “Per Se, Le Bernardin, Daniel, Momofuku, now Eleven Madison Park.” Then another person jumped in: "Yeah, but the only thing we didn't get to try was a New York City hotdog." You know those moments in a cartoon where the [animated]() light [bulb]() [goes off over]() the character's head, signifying they're about to come up with a really good idea?
@@ -35,6 +35,39 @@ In early 2010, I'm busy as nomal laming? service, I was in the dining room, help
 >网站译文：2010 年初， 比平常忙碌的午市， 我在餐厅里帮服务员打下手， 为四位来纽约度假的美食爱好者 收拾开胃菜的餐盘。 他们打算在饭后前往机场回家。 我偶然间听到了他们的对话。 “多好的旅途啊。 我们跑遍了最好的餐厅。” 然后他们说了一堆： “Per Se，Le Bernardin，Momofuku， 现在我们来了麦迪逊公园十一号。” 另一个人插话道： “没错，但是我们 没去尝一尝纽约的热狗。”想象一下动画片里， 卡通灯泡在角色头顶亮了起来， 意思是他们想到了 一个超棒的点子。
 
 注：遇到生词了查一下，记住，不写在文档里，等下次不认识再查一遍加深印象。每天都复习听写前一天的内容，定期从头开始听写，加深印象
+
+#### Day4 03:20
+In early 2010, on a busier-than-nomal lunch service, I was in the dining room helping out the servers when I was found myslef clearing appetizers from a table of four foodies on vacation to New York. And they were going to the airport to head back home to after the meal. I was heared them talking:" What a amazing trip, we were been all that best restaurant.", and they list out much:" XXX, XXX, XXX, now Eleven Madison Park." . Then another person jumped in:" The only thing that we didn't get to try was a New York City hotdog.". You know there's a moment in the catoon where the animals,....
+[You know those moments in a cartoon where the animated light bulb gose off over the character's head, signifying they're about to come up with a really good idea.]
+
+If you been in the room with me that day, you will see I was pppp my mind. As calmlly as I possiblely could I watch greafully back in the kitchen, tro
+ped off the place and liderly run up the front door on the download the hotdog card. About the hotdog, I was run just fast back the kitchen. Now can you heard hard part. Can that shut the serve in a fancy fun dining room restaurant? Guys were looking up me at losing my mind, serving like New York called a dirty water dog in a fauncy restaurant. But I asked them to trust me, then I told them that it was important to me. Advertraly, they agreed to cut up th e hotdog into four perfect pieces, and switch cccc, and switch masters on teach play, and finished in ccc salad croud,???? Then, the four that we served on the table the final ta??? "happen to be a honey levender ????????,years to perfect. We brought the hotdog,." I introduce to them, "To make sure that you don't go home with any ??? regrets , a New York hotdog."
+
+>原文：
+
+
+
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
