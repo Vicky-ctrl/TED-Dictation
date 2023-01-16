@@ -54,6 +54,7 @@ Then, before we served at the table their [final savory course]() -- which happe
 
 
 ####Day5 04:00
+
 Guys, they fraked out. I'm not kidding. At that point I cleared, I have served thousands of dishes and many many many thousands of dollars worked the food. And I can confinitaly say that no one had ever reacted everything that I served them, better than they were reacted the hot dog. Each person said, it was not only the highlight of their meal, but their tired trip in New York. And they were being to tell story for the rest of their lifes. See, that hot dog changed where the restaurant point ?? forward. Because untill that, I've been so forcus on acsurlent?? and all the little details were going to make the meal greet, that somehow I hadn't realized something really important that in restaurants are reason for being, it's to make person feel sss?? 
 
 >原文：Guys, they [freaked out]().I'm not kidding. [At that point]() in my [career](), I had served thousands of dishes and many, many, many thousands of [dollars worth of food](). And I can [confidently]() say that no one had ever reacted to anything I served them better than they reacted to that hotdog. Each person said it was not only the highlight of their meal, but [of]() their [entire]() trip to New York, and they'd be telling the story for the rest of their [lives]().
