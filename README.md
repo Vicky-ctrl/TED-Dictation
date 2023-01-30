@@ -66,7 +66,13 @@ See, that hotdog changed [the way]() I [approach]() restaurants from that point 
 看看，这个热狗从这一瞬间 改变了我运营餐厅的方式。 在此之前，我一直心无旁骛地 扑在餐品的尽善尽美上， 死抠每一个细节， 让这顿饭完美无瑕， 但是忽略了至关重要的一点： 对于一个餐厅来说， 我们存在的价值就是 让人们感到他们被用心关注了。 让人们感到自己受到了款待。
 
 
+####Day6 纯复习
 
+>Now,to be clear,...
+>To give you some context
+>if you don't know what that is,...
+>crisp
+>ironed
 
 
 
