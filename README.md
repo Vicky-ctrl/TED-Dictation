@@ -69,9 +69,13 @@ See, that hotdog changed [the way]() I [approach]() restaurants from that point 
 ####Day6 纯复习
 
 >Now,to be clear,...
+
 >To give you some context
+
 >if you don't know what that is,...
+
 >crisp
+
 >ironed
 
 
