@@ -78,6 +78,59 @@ See, that hotdog changed [the way]() I [approach]() restaurants from that point 
 
 >ironed
 
+>gist
+
+>for nearly decade
+
+>incredibly
+
+>innovative
+
+>gracious
+
+>technically
+
+>consistently
+
+>spot
+
+>hospitality
+
+>principle
+
+>busier-than-nomal
+
+>appetizer
+
+>head back
+
+>overheard
+
+>bunch
+
+>bulb
+
+>gose off over
+
+>literally
+
+>savory
+
+>glazed
+
+>utilizing
+
+>culinary
+
+>freak out
+
+>entire
+
+>approach
+
+>up until now
+
+>excellence
 
 
 
