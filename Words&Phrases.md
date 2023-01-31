@@ -1,20 +1,20 @@
 >Now,to be clear,...
 
->To give you some context
+>To give you some context 
 
->if you don't know what that is,...
+>if you don't know what that is,... 
 
->crisp
+>crisp 
 
->ironed
+>ironed 
 
->gist
+>gist 
 
->for nearly decade
+>for nearly decade 
 
->incredibly
+>incredibly 
 
->innovative
+>innovative 创新的
 
 >gracious
 
