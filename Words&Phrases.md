@@ -1,63 +1,63 @@
->Now,to be clear,...
+>Now,to be clear,...✅
 
->To give you some context 
+>To give you some context ✅
 
->if you don't know what that is,... 
+>if you don't know what that is,... ✅
 
->crisp 
+>crisp ✅
 
->ironed 
+>ironed ✅
 
->gist 
+>gist ✅
 
->for nearly decade 
+>for nearly decade ✅
 
->incredibly 
+>incredibly ✅
 
->innovative 创新的
+>innovative ✅
 
->gracious
+>gracious ✅
 
->technically
+>technically ✅
 
->consistently
+>consistently ✅
 
->spot
+>spot ✅
 
->hospitality
+>hospitality ✅
 
->principle
+>principle ❌
 
->busier-than-nomal
+>busier-than-nomal ✅
 
->appetizer
+>appetizer ❌
 
->head back
+>head back ✅
 
->overheard
+>overheard ✅
 
->bunch
+>bunch ❌
 
->bulb
+>bulb ✅
 
->gose off over
+>gose off over ✅
 
->literally
+>literally ✅
 
->savory
+>savory ❌
 
->glazed
+>glazed ❌
 
->utilizing
+>utilize ❌
 
->culinary
+>culinary ❌
 
->freak out
+>freak out ❌
 
->entire
+>entire ✅
 
->approach
+>approach ❌
 
->up until now
+>up until now ✅
 
->excellence
+>excellence ✅
