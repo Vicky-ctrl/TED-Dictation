@@ -68,6 +68,13 @@ See, that hotdog changed [the way]() I [approach]() restaurants from that point 
 
 ####Day6 纯复习,整理生词短语
 
+####Day7
+
+It's to make they feel welcome.Tt's to give them some 
+
+
+
+
 
 
 
